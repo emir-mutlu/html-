@@ -1,0 +1,1 @@
+# uygulamaa-7
